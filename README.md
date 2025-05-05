@@ -1,0 +1,1 @@
+# DAZ-Studio-Pro-4.22.0.19-ia
